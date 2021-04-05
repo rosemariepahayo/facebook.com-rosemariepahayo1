@@ -1,2 +1,2 @@
-# rosemariepahayo1
-facebook.com/rosemariepahayo1
+#1 rosemariepahayo1/github.com
+facebook.com/rosemarie.q.pahayo
